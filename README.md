@@ -1,0 +1,2 @@
+# coloumbtriangleprob
+DO NOT COPY
